@@ -1,4 +1,4 @@
-# parul
+# Parul
 Data, Business & Marketing Analytics professional with 2+ years of applied experience using data to drive strategy, performance, and growth.
 
 Here’s what I bring to the table:
